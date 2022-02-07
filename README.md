@@ -1,5 +1,5 @@
 -  Hello World, I’m @GodsWife
--  I’m interested in learning!
+-  I’m interested in learning and Succeeding!
 -  I’m currently learning to control my ability's.
 -  I’m looking to collaborate on numerous things!
 -  How to reach me at lagoddess22@yahoo.com
